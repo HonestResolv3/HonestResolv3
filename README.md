@@ -1,7 +1,5 @@
-### Hi there! 👋
-
 ### About me
-- I'm a 22 year old who enjoys technology, the outdoors, programming, and anime. I also made a song too!
+- Hi there! 👋, I'm a 22 year old who enjoys technology, the outdoors, programming, and anime. I also made a song too!
 
 ### Socials & Medias
 [Link](https://linktr.ee/meiownreality)
