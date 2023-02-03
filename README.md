@@ -1,6 +1,3 @@
-### About me
-- Hi there! 👋
-
 ### Socials & Medias
 [Link](https://linktr.ee/HonestResolv3)
 
